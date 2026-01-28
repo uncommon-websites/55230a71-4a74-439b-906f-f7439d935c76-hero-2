@@ -1,0 +1,2 @@
+# 55230a71-4a74-439b-906f-f7439d935c76-hero-2
+Hero section variant 2 for 55230a71-4a74-439b-906f-f7439d935c76
